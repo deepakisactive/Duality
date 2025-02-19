@@ -1,0 +1,1 @@
+In this i have provided the solutions of first 6 L1 questions.
